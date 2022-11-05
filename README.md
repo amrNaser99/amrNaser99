@@ -5,7 +5,8 @@
 
 - 📫 How to reach me **amrnaserr1@gmail.com**
 
-- 📄 Know about my experiences [https://cvdesignr.com/p/622dad7646aaa](https://cvdesignr.com/p/622dad7646aaa)
+- 📄 Know about my experiences [Amr_Nasser El-Sayed_cv.pdf](https://github.com/amrNaser99/amrNaser99/files/9943882/Amr_Nasser.El-Sayed_cv.pdf)
+[](https://cvdesignr.com/p/622dad7646aaa)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
